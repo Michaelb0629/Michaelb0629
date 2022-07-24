@@ -10,6 +10,7 @@
 - Interested in anything simple to try my hands at something close to real world jobs!
 - 📫 How to reach me ...
 - DISCORD@ Ears_McGee629#1649
+- EMAIL bustamantemichael0629@gmail.com
 - 
 
 <!---
